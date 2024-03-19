@@ -1,5 +1,9 @@
-<h1>>>+[DIRECT@TV!]{OL Benfica Streaming} Lyon - Benfica En Direct Streaming Gratuit TV 19 mars 2024</h1>
 Benfica - OL. À quelle heure et sur quelle chaîne voir le quart de finale de Ligue des champions ?
+
+<strong>[🔴EN DIRECT▶ Lyon - Benfica En Direct Streaming](https://sports2tv.live/uefa-womens/)</strong>
+
+<strong>[🔴EN DIRECT▶ Lyon - Benfica En Direct Streaming](https://sports2tv.live/uefa-womens/)</strong>
+
 L’équipe féminine de l’Olympique Lyonnais est toujours en lice en Ligue des champions. Les joueuses de Sonia Bompastor se déplacent à Lisbonne pour affronter Benfica ce mardi 19 mars, en quarts de finale d’une compétition dont elles sont favorites. Horaire, chaîne TV… Voici tout ce qu’il faut savoir pour suivre ce match.	
 Après s’être fait surprendre en demi-finale de Coupe de France face à Fleury aux tirs au but (0-0, 5-4 tab), l’OL s’est racheté en D1 Arkema, vendredi 16 mars, en battant ce même club essonnien (4-0). Les Lyonnaises peuvent désormais se pencher sereinement vers leur quart de finale de Ligue des champions et le déplacement à Benfica qui les attend, ce mardi 19 mars.	
 Après s’être fait surprendre en demi-finale de Coupe de France face à Fleury aux tirs au but (0-0, 5-4 tab), l’OL s’est racheté en D1 Arkema, vendredi 16 mars, en battant ce même club essonnien (4-0). Les Lyonnaises peuvent désormais se pencher sereinement vers leur quart de finale de Ligue des champions et le déplacement à Benfica qui les attend, ce mardi 19 mars.
@@ -13,13 +17,4 @@ Le coup d’envoi du quart de finale de Ligue des champions est programmé à 21
 
 Sur quelle chaîne regarder Benfica - OL?
 La rencontre sera diffusée à 21 h sur DAZN. Un direct commenté sera également assuré sur notre site, ouest-france.fr. Vous pouvez dès à présent suivre la rencontre en cliquant sur ce lien. Le Benfica sans Jessica Silva
-En l'absence de l'ex-Lyonnaise Jessica Silva (blessée), le SLB évoluera en 3-4-3 avec le trio Kika Nazareth, Alidou et Nycole en attaque. La capitaine Carole Costa est de retour en défense centrale. Lucia Alves et Falcon animeront les ailes.Les Lyonnaises se déplacent au Portugal pour leur quart de finale aller mardi 19 mars (21h), après une phase de poule maîtrisée, l’heure est à la confirmation.
-
-Les joueuses de l’Olympique Lyonnais espèrent bien reprendre leur titre au FC Barcelone en C1. Pour ce faire, elles devront se défaire du Benfica Lisbonne en quart de finale. Après avoir terminé la phase de poules invaincues (4 victoires, 2 nuls), les Lyonnaises espèrent bien continuer sur leur série. Mais en face, les joueuses du Benfica restent sur 21 rencontres sans défaites toutes compétitions confondues.Benfica-Lyon : à quelle heure et sur quelle chaîne suivre le quart aller de Ligue des champions féminine ?
-Premières de leur groupe en poule, les Lyonnaises se déplacent ce mardi à Lisbonne pour affronter le Benfica en quart de finale aller de la Ligue des champions féminine. L’Olympique Lyonnais est un habitué des phases finales de la Ligue des champions féminine. Le club rhodanien n’a plus manqué ce rendez-vous depuis la saison 2014-2015 et une élimination en huitième de finale par le PSG.
-
-Pour cette édition 2023-2024, les joueuses de Sonia Bompastor affrontent le Benfica Lisbonne, deuxième de son groupe derrière Barcelone en phases de poules. Les Lyonnaises, qui avaient terminé en tête devant les Norvégiennes de Brann, espèrent faire mieux que la saison précédente. À ce même stade de la compétition, elles avaient été éliminées par Chelsea. En tête de D1 Arkema avec sept points d’avance sur le PSG, l’OL a préparé ce quart de finale de la meilleure des manières en prenant sa revanche sur Fleury en championnat (victoire 4-0 vendredi). Revanche car les Franciliennes avaient battu les Lyonnaises en demi-finale de Coupe de France une semaine plus tôt.
-
-Côté Lisboète, les joueuses du Benfica sont en grande forme, elles qui n’ont pas perdu le moindre match depuis fin novembre, toutes compétitions confondues. Avant leur nul de vendredi contre Damaiense, elles restaient cinq victoires d’affilée en championnat, dont elles dominent le classement devant le Sporting.En cas de qualification après le match retour, prévu le 27 mars à Lyon, les Rhodaniennes pourront retrouver une vieille connaissance en demi-finale, à savoir le PSG. Pour cela, les Parisiennes devront se défaire des Suédoises de Häcken mercredi.
-
-Le quart de finale aller de la Ligue des champions féminine entre le Benfica et l’OL est programmé ce mardi 19 février à Lisbonne à 21 heures. La rencontre sera diffusée sur DAZN. ghfg fd
+En l'absence de l'ex-Lyonnaise Jessica Silva (blessée), le SLB évoluera en 3-4-3 avec le trio Kika Nazareth, Alidou et Nycole en attaque. La capitaine Carole Costa est de retour en défense centrale. Lucia Alves et Falcon animeront les ailes.Les Lyonnaises se déplacent au Portugal pour leur quart de finale aller mardi 19 mars (21h), après une phase de poule maîtrisée, l’heure est à la confirmation. g
